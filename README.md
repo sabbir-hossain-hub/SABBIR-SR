@@ -1,2 +1,2 @@
 # SABBIR-SR
-This is paid faile so fast approve and us that
+This is paid file so fast approve and us that
